@@ -2,7 +2,7 @@
 html practice
 
 # Music Fesitval Limerick 2025
-## ** 15/11/2025** 
+## **15/11/2025** 
 ### About
 Music Festival Limerick is one of the biggest festivals to be held in Ireland. With multiple stages it is said that the entire festival itself will be packed out with around 50,000 people.
 ### Must brings
